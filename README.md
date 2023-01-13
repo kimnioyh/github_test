@@ -24,4 +24,4 @@
 
 ![park](https://blog.kakaocdn.net/dn/JNpk2/btq3YU2OCCZ/jvIeDKLZkX6IeMwOauyyXK/img.jpg)
 
-https://www.diningcode.com/profile.php?rid=LyhyfAM1MpvS 여기 맛있습니다
+저희 너무 빈촐한데요..?
